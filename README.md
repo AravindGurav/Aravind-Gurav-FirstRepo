@@ -1,4 +1,4 @@
-Hi !  I am Aravind !
+Hi !  I am Aravind Gurav !
 This is my Portfolio for neog camp
 
 
